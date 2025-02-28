@@ -119,7 +119,7 @@ We welcome contributions! Follow these steps:
 
 ## 📩 **Contact & Connect**  
 
-**👤 Umair**  
+**👤 HANNAN SHAIKH**  
 📧 [Email](mailto:hannanshaikh9192@gmail.com)
 👉 [LinkedIn](https://www.linkedin.com/in/hannan-shaikh-992a27179/)   
 🌐 [GitHub](https://github.com/hannan101)  
